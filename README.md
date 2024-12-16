@@ -6,3 +6,6 @@
 https://docs.google.com/presentation/d/1mlek43ABP3NCwEHvqpzUVmqsvENt5cIO/edit#slide=id.g2d472e28093_0_0
 
 #google disk - https://drive.google.com/drive/folders/1FHKW_5qV-Rz7qe1dPHf2fg5ZEeSodsz-?usp=sharing
+| резюме😃 |
+| -------- |
+| https://docs.google.com/document/d/1UNNGBQ_i5HrIRvr6MkprkNYa51FkEjfs/edit |
