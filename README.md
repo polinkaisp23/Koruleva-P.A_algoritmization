@@ -9,3 +9,10 @@ https://docs.google.com/presentation/d/1mlek43ABP3NCwEHvqpzUVmqsvENt5cIO/edit#sl
 | резюме😃 |
 | -------- |
 | https://docs.google.com/document/d/1UNNGBQ_i5HrIRvr6MkprkNYa51FkEjfs/edit |
+
+| бд ермилова |
+| -------- |
+| https://colab.research.google.com/drive/1m-Y7Q3KdXXL1kXi9ntUujI1ioIY0-ItJ?usp=drive_link |
+
+
+
